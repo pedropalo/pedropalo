@@ -1,4 +1,4 @@
-### Hi ther, I'm Pedro, aka Kenhild
+### Hi there, I'm Pedro, aka Kenhild
 
 <br/>
 
